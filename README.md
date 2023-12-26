@@ -62,5 +62,4 @@
 
 ### Sincerely
 
-### _SAHELI BASU_ !
 
